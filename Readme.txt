@@ -1,1 +1,1 @@
-Thanks for visiting my portfolio.
+Industry breakup of placement       || Role Breakup            || No of companies on campus (Industry Breakup)
